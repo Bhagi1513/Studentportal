@@ -1,1 +1,1 @@
-[https://23a11a0515.bytexl.live/dashboard]
+https://23a11a0515.bytexl.live/
